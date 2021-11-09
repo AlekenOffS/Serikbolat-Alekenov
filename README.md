@@ -1,0 +1,2 @@
+# Serikbolat-Alekenov
+Aitu student
